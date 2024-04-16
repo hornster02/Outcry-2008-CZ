@@ -1,6 +1,6 @@
-MYABANDONWARE (2024-03)
+MYABANDONWARE - ISO Version (2024-03)
 <br/>
-Včetně CZ dabingu. Velikost 58MB https://drive.google.com/drive/folders/1zVy2l9TmnY8E-ljca7q7aDumWw1w0PlD
+Velikost 58MB https://drive.google.com/drive/folders/1zVy2l9TmnY8E-ljca7q7aDumWw1w0PlD
 
 Chyby
 <br/>
